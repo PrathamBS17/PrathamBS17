@@ -1,4 +1,4 @@
-# 💫i am electronic enginer.
+# 💫i am electronic engineer.
 👋 Hi, I'm Pratham B S , a 3rd year student  .<br><br>📚 I'm currently learning electronics and communication engineering, and I enjoy exploring IoT (Internet of Things).<br><br>🌱 I’m looking to collaborate on Team Projects, Hackathons and Competitions.<br><br>💡 I'm eager to expand my knowledge in  IoT (Internet of Things) and wireless sensor networks, embedded systems programming and real-time operating systems..<br><br>📫 Reach me at prathamprathupks@gmail.com or connect with me on @p_r_a_t_h_a_m_2770.<br><br>⚡ Fun fact: Travel Enthusiast,.<br><br>
 
 
